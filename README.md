@@ -1,2 +1,2 @@
-# Trabalho-
-entrega di 26/10
+# Trabalho
+
